@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yurii Svetliakov
-- Currently studying at a university, 3rd year bachelor's degree, Applied math and IT
+- Currently studying at a university, 3rd year bachelor's degree, applied math and IT
 - 
 - Interested in internships, job opportunities, freelance...
 - 📫 How to reach me yuriisvetliakov@gmail.com
