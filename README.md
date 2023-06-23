@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yurii Svetliakov
-- Currently studying at a university, 4th year bachelor's degree, applied math and IT
+- Have almost got my batchelors diploma in applied math and IT
 - 
 - Interested in internships, job opportunities, freelance...
 - 📫 How to reach me yuriisvetliakov@gmail.com
